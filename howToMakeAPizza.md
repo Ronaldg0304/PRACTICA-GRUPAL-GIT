@@ -1,3 +1,9 @@
+
+
+
+
+
+HORNEADO:
 Preparacion: 
 
 1.  En un tazón grande, mezcla el agua tibia con la levadura y el azúcar. Deja reposar durante unos minutos hasta que la mezcla se vuelva espumosa.
@@ -8,4 +14,4 @@ Preparacion:
 
 4. Amasa la masa durante unos minutos en una superficie en harinada hasta que esté suave y elástica.
 
-5. Coloca la masa en un tazón engrasado y cubre con una toalla húmeda. Deja reposar durante al menos 30 minutos.
+5. Coloca la 
